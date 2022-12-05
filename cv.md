@@ -1,4 +1,4 @@
-# **Bohdan Katiev**
+# **Bohdan Kariev**
 ## **Contacts**
 * **Location**: Ukraine, Kyiv
 * **Phone**: +380 95 645-14-45
